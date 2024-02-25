@@ -1,2 +1,2 @@
 # expert-winner
-blog by me
+blog by Lakshmi Narasimha Reddy
